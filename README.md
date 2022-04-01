@@ -2,4 +2,4 @@
 Repositório criado para desafio de projeto
 
 ## Links úteis
-[Joguinhos] (friv.com)
+[Naruto Shippuden no Drive] (https://twitter.com/rpabuloo/status/1328006314459615238)
